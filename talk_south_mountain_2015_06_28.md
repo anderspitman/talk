@@ -23,7 +23,16 @@
 * We don't really want equal representation; we want equal opportunity.
 
 * To want equal representation is to say all races and genders are exactly the
-  same.
+  same. I think a big reason the secular world yearns for this to be true,
+  is that they want everyone to be equal, but don't have a universal
+  measuring stick that gives the same results for every person, so they
+  invent it. They pretend a person from any race, gender, or social
+  background can jump the same height, perform the same on tests, and have
+  the same capacity for nurturing. We don't have that constraint, because
+  our universal measuring stick is God's love. I can be dumber than you,
+  but still have a firm conviction of my own self worth because I know how
+  much heavenly father loves me.
+
 
 ## Diversity of Beliefs
 
@@ -34,7 +43,7 @@
   where most people hold the complete opposite point of view. At that point
   I had a choice: I could either believe all of those people were without
   morals, or I could try to understand why they feel the way they do. I
-  chose the latter, and I came aware with a much greater appreciation
+  chose the latter, and I came away with a much greater appreciation
   of how complicated issues like this are and how difficult it can be to come
   to a clear moral answer. It's situations like this that I'm grateful that
   the Church does have policies for us to follow. But the Church can't have
@@ -56,6 +65,8 @@
   Mountain Meadows, our own lynchings, our own ..., and in 200 years people
   will look back and wonder how we ever could have done things we think
   are totally ok today.
+
+* [Great talk](https://www.lds.org/ensign/1991/03/unity-in-diversity?lang=eng)
 
 
 ## Diversity of gender
